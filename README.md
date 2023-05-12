@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working on expanding my skills 🤓<br>Work mostly in the Front-End but am wanting to dig into the Backend some more! <br>Hope to learn from this community and look forward to learn from one another. 
+Always on here and have bags under my eyes to show my seniority.🤓<br>Slaying the Front-End but wanting to uncancel the Backend! <br>Always learning from the community and encouraging those around me to explore tech.  
 
 
 ## 🌐 Socials:
