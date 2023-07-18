@@ -1,5 +1,5 @@
 # 💫 About Me:
-Always on here and have bags under my eyes to show my seniority.🤓<br>Slaying the Front-End but wanting to uncancel the Backend! <br>Always learning from the community and encouraging those around me to explore tech.  
+Always on here and have bags under my eyes to show my seniority.🤓 <br>Always learning from the community and encouraging those around me to explore tech.  
 
 
 ## 🌐 Socials:
